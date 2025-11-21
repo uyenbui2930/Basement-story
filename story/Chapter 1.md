@@ -30,7 +30,7 @@ Iwafune quickly put the bowls down, grabbed the remote, and turned off the TV. A
 
 As days pass, Iwafune can no longer tell Nagare to stay put, the boy is now a bundle of energy, clinging to his father in every move, curiously exploring every corner of the basement. Iwafune just knows how to sigh and smile as it is such a good leap from the sickly, bedridden kid he once knew. 
 
-One time, Iwafune had his pen rolled underneath the cabinet, which made me struggle for a while to get it out. When Nagare sees that, he offers to help his father, “let me do it, Iwa-san,” the boy says as he moves the entire cabinet away with his bare hand, which even a grown adult man like Iwafune can't.
+One time, Iwafune had his pen rolled underneath the cabinet, which made him struggle for a while to get it out. When Nagare sees that, he offers to help his father, "let me do it, Iwa-san," the boy says as he moves the entire cabinet away with his bare hand, which even a grown adult man like Iwafune can't.
 
 Iwafune's mouth gapes in astonishment and fear, as it confirms the change in Nagare that Iwafune desperately ignored purposely. But how can he address it when Nagare looks back at him with a proud expression, like he managed to help his father in some way?
 

@@ -16,7 +16,7 @@ One of the tendrils reaches out and touches Iwafune's cheek, it touches cold and
 
 “What do you mean, Nagare?”, with a trembling hand, Iwafune touches the tendril, real and filled with life, and it is not a dream he just can wake up from.
 
-“I tempered a bit with your brain, to make you less sad…” Nagare's voice is quiet and a bit guilty, he flinches as Iwafune touches his tentacle.
+"I tampered a bit with your brain, to make you less sad…" Nagare's voice is quiet and a bit guilty, he flinches as Iwafune touches his tentacle.
 
 Iwafune should be mad, and should yell at Nagare for violating his mind without permission but didn't he do the same thing to the boy before, he doesn't have the right to complain. So he sighs with acceptance and gestures to Nagare to come closer, “Do you hate me being sad, Nagare?” he asks, hand patting the back of Nagare's head. 
 
