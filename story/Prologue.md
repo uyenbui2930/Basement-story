@@ -4,7 +4,7 @@ Once upon a time, there was a pair of father and son, who loved each other very 
 
 The world is not kind to the boy, an outbreak happens worldwide, and an unknown and deadly virus infects people with parasites, turning them into grotesque monsters, slowly losing their sense of self.
 
-In the chaotic world, the father can't find a suitable transplant for his son, whose heart is failing him. However, he has obtained a valuable specimen, a living parasite. After several test trials on animals, he concludes that the parasite can repair the injuries or defections in the host body.
+In the chaotic world, the father can't find a suitable transplant for his son, whose heart is failing him. However, he has obtained a valuable specimen, a living parasite. After several test trials on animals, he concludes that the parasite can repair the injuries or defects in the host body.
 
 For the first time in forever, the father has regained a spark of hope, he can save his son with this parasite. He knows that the side effects can be deadly, and what he is doing is against his ethics but he can’t just sit by and do nothing.
 

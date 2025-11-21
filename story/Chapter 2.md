@@ -49,5 +49,5 @@ Iwafune can't respond, his mouth opens and closes but nothing comes out, Nagare 
 
 “You want to save someone, to find a purpose in your meaningless life, Iwa-san,” Nagare hand gently caressed his cheek, “and I happen to be there, a helpless child that needs to be saved, so in a way, it works out for both of us,” 
 
-“But don't worry Iwa-san, I will make sure you never feel meaningless again,” Nagare leans down and kisses him, unexpected but not unwelcoming. The warmth of the kiss is in contrast to the coldness of something that enters Iwafune's body, into his nerves, right to his brain, taking control of his life like Nagare is right now. Is he getting infected, controlled into Nagare's, or the parasite pawn, why does he feel relieved right now, like all the tension and despair has been sucking off his body. 
+"But don't worry Iwa-san, I will make sure you never feel meaningless again," Nagare leans down and kisses him, unexpected but not unwelcoming. The warmth of the kiss is in contrast to the coldness of something that enters Iwafune's body, into his nerves, right to his brain, taking control of his life like Nagare is right now. Is he getting infected, controlled into Nagare's, or the parasite pawn, why does he feel relieved right now, like all the tension and despair has been sucked out of his body. 
 

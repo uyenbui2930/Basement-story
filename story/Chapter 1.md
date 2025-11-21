@@ -6,9 +6,9 @@ Nagare shook his head, happy, and confidently said, “Nope, I feel great, Iwa-s
 
 This time, it is Iwafune who feels an aching pain in his heart, it is just a simple statement from the boy, but this freedom was deprived of him due to the unfairness of fate. Maybe, the parasite was a gift from God after all, a chance for Nagare to have a normal life and a chance for Iwafune to redeem himself, to save at least someone in this decaying world. 
 
-Nagare goes through a speedy recovery, and Iwafune makes sure to monitor him at all times, switching between the attentive doctor and doting father persona as he sees fit. For him, medical procedure isn't enough, Iwafune would lay down on the same bed as Nagare and listen to the boy's heartbeat as if to directly confirm that his precious son is still here with him. 
+Nagare goes through a speedy recovery, and Iwafune makes sure to monitor him at all times, switching between the attentive doctor and doting father persona as he sees fit. For him, medical procedure isn't enough, Iwafune would lie down on the same bed as Nagare and listen to the boy's heartbeat as if to directly confirm that his precious son is still here with him. 
 
-They form their sanctuary, blocking all that noise from the outside world, and Iwafune is contended with this life, but he knows that sooner or later Nagare will be curious and ask him about the outside world. 
+They form their sanctuary, blocking all that noise from the outside world, and Iwafune is contented with this life, but he knows that sooner or later Nagare will be curious and ask him about the outside world. 
 
 “Iwa-san, I’m bored. Can I watch some cartoons on TV?” Nagare pleads with him with the big puppy eyes that he knows Iwafune can’t resist.
 
