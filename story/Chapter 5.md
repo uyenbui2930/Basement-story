@@ -8,7 +8,17 @@ Nagare, being sharp as ever, can sense Iwafune unease miles away, but he doesn't
 
 Nagare's hand moves to place on top of Iwafune, his look knowing and understanding, “I know, Iwa-san, you have saved me, with this power,” he answers with confidence.
 
-“But, I did something horrible to you, because of my selfishness…” Iwafune cries out, but Nagare gently shushes him, and says, “No, you are wrong, Iwa-san, you gave me a gift of life, a strength to keep on living,” he continues with a smile, a sincere, childlike one, “…with you,” 
+"But, I did something horrible to you, because of my selfishness…" Iwafune cries out, but Nagare gently shushes him, and says, "No, you are wrong, Iwa-san, you gave me a gift of life, a strength to keep on living," he continues with a smile, a sincere, childlike one, "…with you,"
+
+"You've always tried to save me, haven't you, Iwa-san?" Nagare's hand found his. "Even when you thought you couldn't."
+
+Iwafune's breath caught. What did Nagare mean by that? The surgery? The adoption? Or something older—
+
+"I'm glad you did," Nagare continued, his smile soft. "Even if it took you a while."
+
+*Took you a while.* Years. Years between leaving a child in a burning city and finding him again in a cold orphanage. Between failure and attempted redemption.
+
+But Nagare couldn't know that. Could he?
 
 And for the first time in forever, Iwafune manages to see the parasite in action, not in paralysis but in a sane and awake condition, the almost translucent tentacles spread out from Nagare's back, wriggling around in eeriness and strangely elegant movements.
 

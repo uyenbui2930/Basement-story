@@ -37,7 +37,13 @@ After that incident, their relationship felt strained, Nagare no longer happily 
 
 Sometimes, Iwafune looks at himself in the mirror and thinks, did he bite more than he can chew? Like making an impulsive decision to adopt a kid when he can barely take care of himself? Those thoughts make him ashamed of himself but they keep coming back, like water flowing through an open dam. 
 
-Nagare was a difficult kid, and it is not just because of his heart condition, he had been returning to the orphanage several times, due to unknown reasons. But it all made sense, it was said that the boy was a sole survivor of a catastrophic event that wiped out the whole city, it is normal to have some screw loose in the head. And Iwafune, being the bleeding heart he is, brings the kid home without a second thought. 
+Nagare was a difficult kid, and it is not just because of his heart condition. He'd been returned to the orphanage several times, though the files never said why.
+
+It all made sense once Iwafune learned the truth: the boy was a sole survivor of a catastrophic outbreak that had wiped out an entire city. The kind of trauma that left scars no one could see.
+
+Iwafune had been there that day. Had seen the smoke, the bodies, the small figure wandering through the wreckage. He'd told himself for years that finding Nagare in that orphanage had been coincidence.
+
+But guilt has a way of finding you, no matter how far you run. And Iwafune, being the bleeding heart he is, brought the kid home without a second thought—or perhaps with too many thoughts he couldn't name. 
 
 Maybe they see the loneliness in each other, and by clinging to the other, they think they will fill the void within. Iwafune thinks to himself as the ‘paralysis session’ returns, blurring between dream and reality, but this time, he can talk freely.
 

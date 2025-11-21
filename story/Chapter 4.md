@@ -2,7 +2,19 @@ Nagare does most of the personal hygiene for him, as Iwafune still can't break o
 
 Nagare sets the 2 plates down, but Iwafune doesn't even move to take a spoon, the boy sighs and moves his chair next to him, attempting to feed him, “say aaaa Iwa-san,” Nagare said sweetly as he blows on the food and pushes a spoonful to Iwafune mouth, some of the food spilled and drop-down Iwafune face, to which Nagare chuckles and wipes it with a napkin, “Look at you, so messy,” The words trigger distant memories in Iwafune when he just adopted Nagare and had a hard time feeding him. Nagare's behavior right now just mimics everything he did to the boy before. It is sweet in a way as it is twisted. 
 
-“I have always remembered, Iwa-san, you were the only one who was patient with me, who loved me with all your heart…” Nagare stops to put the bowl down, his tone sincere like a confession, “You didn't give up on me, even when you should, and I am grateful for that,” he grabs Iwafune's hand and gently squeezes it, “so even when it is hard to keep living now, please live for me, I will repay for all you did to me, Iwa-san,” 
+"I have always remembered, Iwa-san, you were the only one who was patient with me, who loved me with all your heart…" Nagare stops to put the bowl down, his tone sincere like a confession, "You didn't give up on me, even when you should, and I am grateful for that," he grabs Iwafune's hand and gently squeezes it, "so even when it is hard to keep living now, please live for me, I will repay for all you did to me, Iwa-san,"
+
+Iwafune's hands tightened on the dish he was drying. *Even when you should.* The words echoed. How many times had he given up? Left Nagare behind? Once, in a city consumed by fire and screaming, when he'd walked away because orders were easier than conscience. Once, nearly, when the orphanage called about another incident and part of him had thought *maybe someone else would be better*.
+
+"I should have done better," Iwafune said quietly. "From the beginning."
+
+Nagare looked up at him, blue eyes unreadable. "You did what you could. We all do."
+
+*We all do.* Such simple words, but they felt like forgiveness for something Nagare shouldn't even know about.
+
+Unless he did.
+
+Iwafune didn't ask.
 
 The words from Nagare sound like both a command and a plea and Iwafune could sense a crack in the boy's facade, where his small, vulnerable son resides, how can Iwafune ever say no to him? Iwafune blinks, clenches, and unclenches his palms, fractions of control have returned to his body. “Nagare, you don't have to pretend, not with me, please tell me everything, have I ever denied you anything?” His first words struggle to come out after a long period of not talking but it is like a relief to him. 
 “You’ve never denied me anything, Iwa-san,” Nagare said, his voice soft, almost wistful. He leaned closer, resting his forehead against Iwafune’s shoulder. “But maybe that’s the problem.”

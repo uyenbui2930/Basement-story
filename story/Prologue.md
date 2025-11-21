@@ -51,7 +51,7 @@ He then opens the parasite vial, grabs it out with a forceps, and puts it into t
 
 The numbers on the cardiogram are getting better as minutes pass, Nagare condition is stabilized now. Iwafune hesitated as he started to sew the cut, watching the parasite completely integrate inside the heart, sealing their fates inside the abyss of uncertainty.
 
-Maybe he knows exactly what is going on, but desperately clinging to a small chance that things might be different. Iwafune shakily took off his surgery gown and washed his hands, his muscles felt like jelly, only now that he could let himself be weak and succumb to his fears.
+Maybe he knows exactly what is going on, but desperately clinging to a small chance that things might be different. This wasn't the first time he'd gambled with fate to save Nagare. The first time, he'd failed—walked away from a burning city and a small figure in the wreckage, telling himself there was nothing he could do. He'd lived with that choice for years, the memory festering like an open wound. He wouldn't fail again. Not this time. Iwafune shakily took off his surgery gown and washed his hands, his muscles felt like jelly, only now that he could let himself be weak and succumb to his fears.
 
 He grabs a cold beer can from the fridge and sits down on the chair next to the operation table. The cold liquid soothed the dryness in his throat, but couldn't wash away the weight of his guilt. But looking at Nagare's steady breathing, a faint smile dawns on his face, he touches the boy's hand, and whispers, “Welcome back, Nagare,”
 
